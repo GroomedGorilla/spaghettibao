@@ -1,1 +1,2 @@
+Dear god, it's me, your humble servant. I have a problem with commitment. I can't seem to stick to anything for more than a few weeks. I start strong, but then I lose interest and move on to something else. It's like I'm afraid of making a decision and sticking to it.
 Poooooop
